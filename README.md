@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **mohakk.mk@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1I4KHm6vuYAGlgR10Zzz6-EtIx_9Lxds6XzYaxBIw0-4/edit?usp=sharing](https://docs.google.com/document/d/1I4KHm6vuYAGlgR10Zzz6-EtIx_9Lxds6XzYaxBIw0-4/edit?usp=sharing)
+- 📄 Know about my experiences [://docs.google.com/document/d/1I4KHm6vuYAGlgR10Zzz6-EtIx_9Lxds6XzYaxBIw0-4/edit?usp=sharing](https://docs.google.com/document/d/1I4KHm6vuYAGlgR10Zzz6-EtIx_9Lxds6XzYaxBIw0-4/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
